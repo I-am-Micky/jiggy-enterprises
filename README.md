@@ -7,8 +7,6 @@ I am Still Not so Familiar with the Use Of Github....I am facing little challeng
 But if you SCROLL DOWN A Little Further on My Project Folder You should see SCREENSHOT Pictures of How Jiggy Looks And Feels.
 I  WOULD APPRECIATE ANY CREATIVE ASSISTANCE TO FACE THE CHALLENGES ABOVE ......THANK YOU.
 Signing Out,
-MICKY IKWUANUSI,
-aka
 #JIGGY-BOY
 
 
